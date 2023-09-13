@@ -1,1 +1,1 @@
-# List of all of my hard earned certificates
+# List of all my hard earned certificates
